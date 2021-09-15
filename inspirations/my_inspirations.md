@@ -4,4 +4,4 @@ Seeing a medical care system that is indifferent towards people's suffering and 
 
 Seeing unequal treatment and bias toward marginalized people inspires me to do everything I can to dismantle a system designed to extract value out of people with no regard to their health or quality of life.
 
-in short, a system that favors profit above anything else inherently fails the vast majority of people in that system. This inspires me to do everything I can in my lifetime
+in short, a system that favors profit above anything else inherently fails the vast majority of people in that system. This inspires me to do everything I can in my lifetime to get things moving towards something better than what we have now.
