@@ -1,0 +1,1 @@
+Most recently I have been captivated by the show Ginny and Georgia. When I'm just trying to de-stress and distract myself for a little while I like watching more lighthearted cartoons like Steven Universe, Gravity Falls, and Summer Camp Island, and Hilda.
